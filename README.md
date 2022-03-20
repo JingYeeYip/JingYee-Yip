@@ -1,4 +1,3 @@
-# JingYee-Yip
 
 # About ME👧🏻
 ## Introduction
